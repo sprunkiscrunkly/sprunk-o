@@ -8,7 +8,7 @@
 
 👉👉 Click to play，3rd Version: [Sprunk O](https://sprunkipyramixed.com/sprunk-o/ "Sprunk O")
 
-Enter the effervescent world of Sprunk O - where soda-pop music meets carbonated creativity! This fizzy mod transforms the classic [ Incredibox](https://sprunkipyramixed.com/sprunk-o/#) experience into a bubbly musical adventure.
+Enter the effervescent world of Sprunk O - where soda-pop music meets carbonated creativity! This fizzy mod transforms the classic Incredibox experience into a bubbly musical adventure.
 
 Sprunk O reimagines music creation in a soda-inspired setting. The game features a collection of sparkling characters, each capable of producing unique bubbly sounds and beats that combine into refreshing compositions.
 
@@ -80,7 +80,7 @@ Today, Sprunk O stands as a testament to creative music gaming, where soda-pop c
 
 ### What is Sprunk O?
 
-Sprunk O is an innovative music creation mod that transforms the [ Incredibox](https://sprunkipyramixed.com/sprunk-o/#) experience into a fizzy adventure with soda-inspired characters and bubbly beats.
+Sprunk O is an innovative music creation mod that transforms the Incredibox experience into a fizzy adventure with soda-inspired characters and bubbly beats.
 
 ### How do I play Sprunk O?
 
